@@ -35,7 +35,7 @@
 
 点击访问：<a href="https://cg38-25.pages.dev/">911爆料</a>
 
-点击访问：<a href="hhttps://cg09-01.pages.dev/">吃瓜爆料网</a>
+点击访问：<a href="https://cg09-01.pages.dev/">吃瓜爆料网</a>
 
 点击访问：<a href="https://hls-19.pages.dev/">黑料社</a>
 
